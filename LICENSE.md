@@ -1,0 +1,3 @@
+I have no idea what license is....
+I don't care what you do with this collection.
+Do what you want, and leave me alone.
